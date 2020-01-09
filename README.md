@@ -1,0 +1,2 @@
+# faszsagok
+Hülye szar faszságok
